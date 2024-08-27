@@ -1,2 +1,2 @@
 # Bigotess
-amo a mi gato
+Descansa en el cielo Bigotes
